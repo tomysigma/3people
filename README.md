@@ -1,1 +1,1 @@
-# 3people
+# 3peoples
